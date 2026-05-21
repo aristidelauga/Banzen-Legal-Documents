@@ -1,1 +1,1 @@
-Banzen Privacy Policy soon to be published.
+Banzen Privacy Policy and terms of service.
